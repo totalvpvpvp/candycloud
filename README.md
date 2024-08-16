@@ -8,7 +8,7 @@ Candy Cloud机场，广港IEPL专线接入，解锁Netflix disney+，支持Chatg
 
 Candy Cloud机场提供免费的小火箭账号，联系客服获取即可。
 
-支持支付宝/微信付款。111111
+支持支付宝/微信付款。1111111
 
 ## Candy Cloud优惠码
 
